@@ -18,8 +18,8 @@ This profile hosts a variety of my work including:
 
 ## 📬 Contact  
 If you'd like to connect or collaborate, feel free to reach out!  
-📧 **Email:**gurnanikamya@gmail.com**  
-🔗 **LinkedIn:**https://www.linkedin.com/in/kamya-gurnani-476281220/
+📧 Email:**gurnanikamya@gmail.com**  
+🔗 LinkedIn: https://www.linkedin.com/in/kamya-gurnani-476281220/
 
 
 
